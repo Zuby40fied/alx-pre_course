@@ -1,1 +1,1 @@
-My first readme
+Man is too strong but a weak spirit
